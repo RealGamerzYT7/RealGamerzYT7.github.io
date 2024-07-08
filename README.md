@@ -4,5 +4,5 @@
 ## Here You Can Know About Me!
 
 # SUBSCRIBE TO MY YT CHANNEL!
-[RGYT]
-(https://youtube.com/@RealGamerzYT).
+**[SUBSCRIBE](https://youtube.com/@RealGamerzYT
+)**
