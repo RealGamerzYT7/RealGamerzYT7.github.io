@@ -1,1 +1,1 @@
-# Welcome $user Here You Can See About Me!
+# Welcome $USER Here You Can See About Me!
