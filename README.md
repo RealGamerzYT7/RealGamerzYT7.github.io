@@ -5,6 +5,8 @@
 
 > [!TIP]
 > SUBSCRIBE AND JOIN MY DISCORD!
+
 > **[CLICK ME TO SUBSCRIBE](https://youtube.com/@RealGamerzYT
 )**
+
 > **[CLICK ME TO JOIN MY DISCORD](https://discord.com/invite/9q8DNeTbJd)**
