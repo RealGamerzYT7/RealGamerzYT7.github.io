@@ -1,2 +1,1 @@
-[Logo]
-(https://media.discordapp.net/attachments/1237018504750825474/1259896005420257310/h4qprs.jpg?ex=668d5917&is=668c0797&hm=5ef048b45dff7732b050520d77363e75ca849428d78d6ef415e8bdaa736a6a05&)
+![h4qprs](https://github.com/RealGamerzYT7/RealGamerzYT7.github.io/assets/103527065/6334684c-a5d7-4ed9-a67f-7a6308d748e6)
