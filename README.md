@@ -6,5 +6,4 @@
 ### SUBSCRIBE TO MY YT CHANNEL!
 **[CLICK ME TO SUBSCRIBE](https://youtube.com/@RealGamerzYT
 )**
-**[CLICK ME TO JOIN MY DISCORD]
-(https://discord.com/invite/9q8DNeTbJd)**
+**[CLICK ME TO JOIN MY DISCORD](https://discord.com/invite/9q8DNeTbJd)**
